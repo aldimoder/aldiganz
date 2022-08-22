@@ -1,0 +1,2 @@
+# aldiganz
+Engga tau pemul
